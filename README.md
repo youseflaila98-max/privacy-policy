@@ -1,6 +1,6 @@
-Privacy Policy
+Privacy Policy for "Nami Thihnak" (نمِّ ذهنك)
 
-This Puzzle Game is built as a Free app. This service is provided at no cost and is intended for use as is. 
+This Puzzle Game (Nami Thihnak) is built as a Free app. This service is provided at no cost and is intended for use as is. 
 
 Information Collection and Use:
 This application does not collect, store, or share any personal user data or technical information of any kind. 
