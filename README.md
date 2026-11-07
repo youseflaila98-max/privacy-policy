@@ -1,6 +1,6 @@
-Privacy Policy for "Nami Thihnak" (نمِّ ذهنك)
+Privacy Policy for "Mind Maze" (متاهة العقول)
 
-This Puzzle Game (Nami Thihnak) is built as a Free app. This service is provided at no cost and is intended for use as is. 
+This Puzzle Game (Mind Maze) is built as a Free app. This service is provided at no cost and is intended for use as is. 
 
 Information Collection and Use:
 This application does not collect, store, or share any personal user data or technical information of any kind. 
